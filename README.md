@@ -6,4 +6,4 @@
 
 ![](https://imgur.com/kMjaGo2.png)
 
-![](https://user-images.githubusercontent.com/19412160/79085162-6d488880-7d05-11ea-992c-f2f5082171c3.png)
+![](https://user-images.githubusercontent.com/19412160/192672899-2c3924b0-e62c-4167-ab3e-8daa75c78809.png)
